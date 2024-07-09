@@ -1,4 +1,4 @@
-## Hi there 👋
+## GET RICH OR DIE TRYING 🚀
 
 <!--
 **averagekidtapani/averagekidtapani** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
